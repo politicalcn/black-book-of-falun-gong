@@ -47,10 +47,3 @@ Master: If you have time, then do more; if you don’t have time, then do less. 
 Student: I didn’t attend the class. Will I see results if I frequently read the book and study?
 
 Master: Those who didn’t attend the class, but can study on their own and are truly able to follow the xinxing requirements that guide practitioners as they cultivate, can achieve obvious results just the same.
-
-# Buddha
-Student: What’s the lowest Attainment Status of the Buddha school?
-
-Master: The lowest Attainment Status of the Buddha school is that of the Arhat. Below that, there is no Attainment Status and the cultivator didn’t reach True Attainment Status and didn’t go beyond the Three Realms.
-
-
