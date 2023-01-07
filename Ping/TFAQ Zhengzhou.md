@@ -43,6 +43,10 @@ Student: At night when I’m practicing by myself with my eyes closed, when I th
 
 Master: Let me tell you, Falun Dafa is now known everywhere in every dimension. As Falun Dafa is being passed on in ordinary people’s society, there are many kinds of messed up things and things of many dimensions that want to take a look—they are strange and peculiar looking, there are all kinds of them. When you are practicing they will come and watch you, and you are so frightened that you feel the hair on your arms stand up. But remember that my Law Body is there and no one can hurt you, they just want to have a look. Why do you feel really scared? It’s because your subordinate soul sees them and is pretty scared. Actually it doesn’t matter at all.
 
+Student: When doing the exercises while listening to Falun Dafa music, I heard the rhythmic sound of a golden bell. What was it? Was it a result of the subordinate consciousness?
+
+Master: No, it wasn’t. It was a sound from another dimension. There are many such sounds. Don’t be concerned with it.
+
 
 
 # Extreme and deifying
