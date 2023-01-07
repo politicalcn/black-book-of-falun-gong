@@ -15,10 +15,6 @@ Student: Every time I think about Falun in my mind I shudder. Why does this happ
 
 Master: If one has animal or spirit possession, this might occur, but in the classes I got rid of them for the vast majority of our students, with the exception of the very few who still hadn’t changed their way of thinking and weren’t firm about cultivation. When I was getting rid of those things, I didn’t investigate further.
 
-Student: When I practice the exercises, my body sways involuntarily.
-
-Master: Don’t sway, don’t sway involuntarily. If you just can’t stop swaying, then open your eyes and the swaying will stop. Do this until you don’t sway anymore.
-
 Student: While practicing Falun Dafa, especially while practicing the second exercise—Falun Standing Stance—my hands feel like they’re holding a mass of qi. If I don’t consciously control it, the mass of qi will pull the hands inward or sometimes push them outwards.
 
 Master: This is the Falun turning. What you are feeling is just the feeling of the Falun rotating.
