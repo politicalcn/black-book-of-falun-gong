@@ -6,3 +6,6 @@ https://web.archive.org/web/20210128104037/https://www.recordonline.com/news/201
 
 In 2022, Dragon Springs was sued in federal court for alleged sewage contamination of the Basher Kill stream and Neversink River.
 https://www.recordonline.com/story/news/local/2022/01/20/falun-gong-dragon-springs-accused-sewage-spill-basher-kill-neversink-river/6577825001/
+
+In December 2022, the lawsuit was dismissed.
+https://news.bloomberglaw.com/product-liability-and-toxics-law/falun-gong-headquarters-escapes-n-y-river-pollution-lawsuit
